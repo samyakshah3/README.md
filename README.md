@@ -4,7 +4,7 @@ I am a supply chain professional with a strong background in Strategic Sourcing,
 
 🎓 Currently pursuing a Master of Science in Industrial Engineering at the State University of New York at Buffalo, expected to graduate in December 2024, I am passionate about leveraging data-driven insights to enhance supply chain performance.
 
-🌐 Interested in Supply Chain Analytics, Demand Planning, Procurement, optimizing supply chain operations, and implementing AI technologies in Supply Chains, I excel in strategic decision-making and process optimization.
+🌐 Interested in Supply Chain Analytics, Demand Planning, Procurement, Optimizing Supply Chain Operations, and Implementing AI Technologies in Supply Chains, I excel in strategic decision-making and process optimization.
 
 🧘🏻‍♂️ Apart from work, I enjoy cooking, staying fit, following soccer, and practicing meditation and mindfulness.
 
