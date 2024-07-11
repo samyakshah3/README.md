@@ -8,4 +8,4 @@ I am a supply chain professional with a strong background in Strategic Sourcing,
 
 🧘🏻‍♂️ Apart from work, I enjoy cooking, staying fit, following soccer, and practicing meditation and mindfulness.
 
-📫 Let's connect on [LinkedIn](https://www.linkedin.com/in/shahsamyak/) to explore opportunities or learn more about my professional journey!
+📫 Let's connect on [LinkedIn](https://www.linkedin.com/in/shahsamyak/) to explore opportunities and learn more about my professional journey!
