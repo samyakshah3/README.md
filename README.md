@@ -6,6 +6,6 @@ I am a supply chain professional with a strong background in Strategic Sourcing,
 
 🌐 Interested in Supply Chain Analytics, Demand Planning, Procurement, Sustainable Supply Chains, and Implementing AI Technologies in Supply Chains, I excel in strategic decision-making and process optimization.
 
-🧘🏻‍♂️ Apart from work, I enjoy [cooking]([https://www.instagram.com/samyak_shah_777?igsh=ZzF5aG1vNGhsZGp6], fitness, following soccer, and practicing meditation and mindfulness.
+🧘🏻‍♂️ Apart from work, I enjoy [cooking][https://www.instagram.com/samyak_shah_777?igsh=ZzF5aG1vNGhsZGp6], fitness, following soccer, and practicing meditation and mindfulness.
 
 📫 Let's connect on [LinkedIn](https://www.linkedin.com/in/shahsamyak/) to explore opportunities and learn more about my professional journey!
