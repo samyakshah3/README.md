@@ -4,7 +4,7 @@ I am a supply chain professional with a strong background in Strategic Sourcing,
 
 🎓 Currently pursuing a Master of Science in Industrial Engineering at the State University of New York at Buffalo, expected to graduate in December 2024, I am passionate about leveraging data-driven insights to enhance supply chain performance.
 
-🌐 Interested in Supply Chain Analytics, Demand Planning, Procurement, Sustainable Supply Chains, and Implementing AI Technologies in Supply Chains, I data driven decision-making and process optimization.
+🌐 Interested in Supply Chain Analytics, Demand Planning, Procurement, Sustainable Supply Chains, and Implementing AI Technologies in Supply Chains, I excel in data driven decision-making and process optimization.
 
 🧘🏻‍♂️ Apart from work, I enjoy [cooking](https://www.instagram.com/samyak_shah_777?igsh=ZzF5aG1vNGhsZGp6), fitness, following soccer, and practicing meditation and mindfulness.
 
